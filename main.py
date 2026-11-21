@@ -20,7 +20,8 @@ turned the lock —
 to ask is to lend another
 the power to give,
 and be given back
-a life that was yours.
+the key — still warm
+from another hand.
 """
 
 
